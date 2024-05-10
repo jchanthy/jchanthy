@@ -7,5 +7,5 @@ I'm also on a learning journey to become a Full Stack Developer through a progra
 
 My passion lies in continuously learning new technologies and sharing that knowledge with the younger generation. Apart from my professional endeavors, I maintain a YouTube channel called "ReanDigital,". You can also find me on Facebook with the page name "ចន ចន្ធី - John Chanthy."
 
-Feel free to reach out to me via email at john.chanthy@gmail.com or connect with me on LinkedIn: [@john.chanthy](https://www.linkedin.com/in/john-chanthy).
+Feel free to reach out to me via email at john.chanthy@gmail.com or connect with me on LinkedIn: [@john.chanthy](https://www.linkedin.com/in/john-chanthy-71352642).
 😊🚀
