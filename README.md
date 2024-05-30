@@ -1,4 +1,4 @@
-
+👋
 ## About Me
 
 Hello! I'm Chanthy John, a Web Developer working at CADT (Cambodia Academy of Digital Technology). My current responsibilities include managing the e-learning platform and teaching Basic Computer and Computer Essentials at IDG (Institute of Digital Governance), which operates under CADT.
